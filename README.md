@@ -1,0 +1,1 @@
+# Informatica_Industrial_2021.3
